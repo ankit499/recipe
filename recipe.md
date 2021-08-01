@@ -1,0 +1,1 @@
+This is my Egg Sanwhich Recipe: The egg must be cooked in sunny-side-up style to add more flavour and punch when the yolk bursts. Recommeneded to use sweetish mayonaise which will blend well with savoury egg.
